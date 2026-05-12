@@ -1,4 +1,4 @@
-#  
+#  rare Workflow for ClickUp for macOS - real-time editing and custom shortcuts is the best ClickUp for macOS workflow, featuring real-time editing and custom shortcuts. Safe,
 
 
 
